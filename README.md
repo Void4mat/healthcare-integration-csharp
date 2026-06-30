@@ -52,4 +52,4 @@ information systems and clinical platforms.
 
 Michael Thompson — Integration Engineer
 Cape Town, South Africa
-[LinkedIn](your linkedin url here)
+[LinkedIn](https://www.linkedin.com/in/michael-thompson-55537799/)
